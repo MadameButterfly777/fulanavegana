@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fulanavegana alias Georgina
+- 👋 Hi, I’m @madame.butterfly.ok alias Georgina
 - 👀 I’m interested in so many things that it's paralyzing ... 
 - 🌱 I’m currently learning frontend development
 - 💞️ I’m looking to collaborate on ...IDK, i'm listening offers
